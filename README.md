@@ -2,7 +2,7 @@ ___
 ## Савельев Вячеслав Александрович  
 Мужчина, 36 лет, родился 1 апреля 1988  
 
-+7(920)0496028 • Telegram: [**vysavely**]([@vysavely](https://t.me/vysavely)) • e-mail: s02a@yandex.ru  
++7(920)0496028 • Telegram: [**vysavely**](https://t.me/vysavely) • e-mail: s02a@yandex.ru  
 
 Проживаю: Нижний Новгород, м. Горьковская  
 Не готов к переезду, готов к командировкам  
